@@ -8,4 +8,4 @@ i'm Hjin-BF (my really name Kirill)
 
 📫 How to reach me? gmail: hjinbefe@gmail.com, discord username: lalodkin
 
-my GitLab https://gitlab.com/Hjin-BF
+🌐 my GitLab https://gitlab.com/Hjin-BF
